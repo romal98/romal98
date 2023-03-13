@@ -1,3 +1,3 @@
 <p align="center">
-  <img  src="https://media.tenor.com/8lZ0EGyEk1IAAAAC/inugami-korone-holo-live.gif">
+  <img  src="https://media.tenor.com/rM2I-qktFPkAAAAd/korone-inugami.gif">
 </p>
